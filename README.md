@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Fruuiit
-- 👀 I’m interested in getting a job and finishing school!
+- 👋 Hi, I’m @Fruuiit or Matthew Kim
+- 👀 I’m interested in getting a job
 - 🌱 I’m currently learning.
 - 💞️ I’m looking to collaborate on lots of things
 - 📫 How to reach hotdog6000@gmail.com
